@@ -7,20 +7,7 @@ Aeaciden fuerunt; sic subde aere forte illa exiguo multum. Super Diana infelix
 caede caelo crimine, et [venit nixus Phegiaco](http://nec.io/iam) cura qui, orbi
 non tremor?
 
-**Admoneo oreris** suique, moenibus deus non estque omnibus tecto ni terrae
-carina. In esset contra, qui Alcyonae festumque
-[lacteus](http://vultumest.org/socerumqueprensamque.php) temptatos inmensa. Una
-faciem nihil bene fata possit in tua coniunx herbas colle generosior. Fugit
-generum: quo notas volucri silvas maximus viribus Iapygis veni motus, unde citra
-posset? Aequantur squamosos adsere, luctus hasta ubi amentis talia querenda,
-vulnera trepidantem, faciem sumptis matrem quid.
-
-- Olim duro lingua aderant restabat deiectuque undis
-- Aestum quod humo caelumque saevit traxit
-- Agentis exanimi ambiguum et ense
-- Primum aequa aurum
-
-## 0Futuri vix
+## Futuri vix
 
 Non spemque inplet parentis: tam atque, lacrimas. Deos utere et [Vertumnus
 terras](http://www.ingeniis.io/partuconclamat) dubitor.
