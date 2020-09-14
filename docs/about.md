@@ -1,6 +1,6 @@
 #  TITLETEST
 
-## 0Tegeaea domito Idmoniae nunc
+## Tegeaea domito Idmoniae nunc
 
 Lorem markdownum ipsumque cum sensitque ex deus! Et **felix**. Longo quoque
 Aeaciden fuerunt; sic subde aere forte illa exiguo multum. Super Diana infelix
